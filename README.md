@@ -1,0 +1,2 @@
+# Lab2IPZ
+BorsukMykhailo
